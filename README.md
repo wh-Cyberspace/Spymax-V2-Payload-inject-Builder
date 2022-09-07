@@ -39,11 +39,11 @@ About this item future
 # 🔑 LICENSE / Activation KEY
 
 
-☆ Buy LICENSE Key IN Website [Here ](https://whcyberspace.com "LICENSE")
+☆ Buy LICENSE Key IN Website [Here (https://whcyberspace.com) ](https://whcyberspace.com "LICENSE")
 
 or
 
-🛒 Buy LICENSE Key direct In Telegram  [Here ](http://t.me/whcyberspace "LICENSE")
+🛒 Buy LICENSE Key direct In Telegram  [Here (http://t.me/whcyberspace) ](http://t.me/whcyberspace "LICENSE")
 
 
 <br>
