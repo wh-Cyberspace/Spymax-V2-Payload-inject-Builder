@@ -1,7 +1,7 @@
 <p align="center">
 <img src="https://github.com/wh-Cyberspace/Anubis-7.0-Builder/blob/main/img/header.png?raw=true" height="170"><br>
   
-<h1 align="center">  WH Anubis7.0 Builder</h1> 
+<h1 align="center">  Spymax - v2 Payload inject Builder</h1> 
 
 <br>
 </p>
