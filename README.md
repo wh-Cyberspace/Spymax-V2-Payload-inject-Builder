@@ -18,6 +18,8 @@ Usage of WH-Cyberspace Hacking Tool for attacking targets without prior mutual c
 
 About this item future
 
+[+] Inject Payload into other APK
+
 [+] Victim Name Change in Apk
 
 [+] IP/DNS Change In Apk
